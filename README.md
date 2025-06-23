@@ -23,7 +23,6 @@
 - 💼 Worked professionally in a **real estate startup**  
 - 🔥 Passionate about **building innovative projects** & **exploring new technologies**  
 
----
 
 # 🚀 Projects & Achievements  
 
